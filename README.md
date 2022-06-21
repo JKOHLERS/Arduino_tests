@@ -9,6 +9,8 @@ Blinking an external LED: https://www.tinkercad.com/things/gkRMaqzHS8y-smooth-wl
 
 Ohm's Law applied: https://www.tinkercad.com/things/2TJpai4BJwN-spectacular-hango/editel?sharecode=4a_OIN4d236QL_J05sdMlIms3MjpMHSHHfy6oPXI-YM
 
+Traffic Lights: https://www.tinkercad.com/things/3UQe8M9Lejw-magnificent-habbi/editel?sharecode=QGL-of49arF8gCviuXOdj7ECWdlSyZMaVqwSIhl5EXE
+
 
 
 
