@@ -11,6 +11,9 @@ Ohm's Law applied: https://www.tinkercad.com/things/2TJpai4BJwN-spectacular-hang
 
 Traffic Lights: https://www.tinkercad.com/things/3UQe8M9Lejw-magnificent-habbi/editel?sharecode=QGL-of49arF8gCviuXOdj7ECWdlSyZMaVqwSIhl5EXE
 
+Ceiling Fan: https://www.tinkercad.com/things/fQgEOqGw5Iq-ceiling-fan/editel?sharecode=TdVCcwT2rfOUqng-6Uaz-EtQuWLBv0V68aigvmsRwN0
+
+
 
 
 
